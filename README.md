@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Strawberrymakerrr
 - 👀 I’m interested in sports especially soccer
-- 🌱 I’m currently learning communicationn
+- 🌱 I’m currently learning communication
 - 💞️ I’m looking to collaborate on programming
 - 📫 How to reach me YunLong.Matthew.Zhang@hotmail.com
 
